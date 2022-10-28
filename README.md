@@ -16,11 +16,13 @@ Launching COMMUNITY
 - Discord OG Whitelist
 - Early Pre-Sale
 - LAUNCH THE COLLECTION OF 4,444 Catz Warrior INTO THE METAVERSE
+
 Phase II
 Community & Connection
 - A portion of the proceeds will be used to purchase food for stray cats.
 - Level 2 Marketing Campaigns
 - Holders-only raffles and discounts
+
 Phase III
 Public Service
 - Activate and fund the community and charity wallet.
